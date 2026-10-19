@@ -36,7 +36,7 @@ I'm interested in the intersection of **technology, trading, and finance**. My g
 
 ### 📌 My Philosophy
 
-> Learn consistently. Build projects. Analyze mistakes. Improve every day.
+> There is always an easier way out.
 
 I'm just getting started, and this is where I'll document my journey.
 
